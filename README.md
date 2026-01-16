@@ -1,1 +1,0 @@
-# ejercicio2GYEturi_sbm2025_sazeoeg9
